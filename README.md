@@ -1,4 +1,4 @@
-# Official Account created to maintain a backup of [@TeamGalaxyFriends](github.com/TeamGalaxyFriends) organization
+# Official Account created to maintain a backup of [@TeamGalaxyFriends](https://github.com/TeamGalaxyFriends) organization
 
 <h2>Join My Group & Channel 🎉</h2>
 
